@@ -1,0 +1,1 @@
+Scratch-Repo: Sandbox style for projects of infant size.
